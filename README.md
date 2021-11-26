@@ -14,3 +14,4 @@ Before you start creating your first crypto trade, please read through the follo
 Why should you believe me? I am not going to share how much have earned from crypto. I am believer and active investor. I have been in the crypto world since 2017. I have seen websites go away, coins losing more than 90% of its value, my portfolio looking sombre for months together. I started when I had trouble wrapping my head around the concepts of blockchain, cryptocurrency, alt coins, NFTs, etc. You'll get honest and humble advice on starting and evolving your journey into the crypto world.
 
 Step 1: 
+<iframe width="560" height="315" src="https://www.youtube.com/embed/z2ZTfOVBN_E" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture" allowfullscreen></iframe>
